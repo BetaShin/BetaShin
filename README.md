@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BetaShin
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on your mom
+- 💞️ I’m looking to collaborate with your mom
 - 📫 How to reach me hoff mal garnicht
 
 <!---
